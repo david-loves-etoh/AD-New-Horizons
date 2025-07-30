@@ -1,2 +1,0 @@
-# AD:New Horizons
-WIP
